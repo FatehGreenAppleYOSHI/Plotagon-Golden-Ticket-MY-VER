@@ -1,8 +1,4 @@
 # Plotagon Golden Ticket MY VER
-PC And Android
-
-this will get you plotagon golden ticket for free
-
 # Link (PASSWORD: FatehGreenAppleYOSHI)
 https://drive.google.com/drive/folders/10FWdmF8bMblFx73JqMuVZbjLqiX1dv9t?usp=sharing : https://gist.github.com/SomeGuyWhoLovesCoding/c35fdabf76b18740829969c501ae02ef : https://www.plotagon.com/desktop/ 
 # Voices (PC)
