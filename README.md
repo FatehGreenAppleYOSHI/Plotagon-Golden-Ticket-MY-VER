@@ -14,5 +14,3 @@ https://drive.google.com/drive/folders/1zdbEFNFZAlrp1xx0WI8T_2vb11ORCnpO?usp=sha
 https://youtu.be/sy85b9FWw0g?si=hoWB82TosxKOHClU : https://youtu.be/Q6BIYnrSxAU?si=DP6MwhPOlShuMRWs 
 # On android (Only For Users that can access Android\data\ and Android\obb without zarchiver)
 (Coming soon)
-# For samsung users (if you cannot access Android\data)
-https://youtu.be/LWA8KmQgx5E?si=igTA70FiLAKrIvv7
