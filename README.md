@@ -4,7 +4,7 @@ PC And Android
 this will get you plotagon golden ticket for free
 
 # Link (PASSWORD: FatehGreenAppleYOSHI)
-(Soon) : https://gist.github.com/SomeGuyWhoLovesCoding/c35fdabf76b18740829969c501ae02ef : https://www.plotagon.com/desktop/ 
+https://drive.google.com/drive/folders/10FWdmF8bMblFx73JqMuVZbjLqiX1dv9t?usp=sharing : https://gist.github.com/SomeGuyWhoLovesCoding/c35fdabf76b18740829969c501ae02ef : https://www.plotagon.com/desktop/ 
 # Voices (PC)
 https://drive.google.com/file/d/17mZd1FewPoKAbC-GGxzomBwUN1EqWeGy/view : https://drive.google.com/drive/folders/11ZBzluEp0msw2zy91rqq2OSI6kZiGzMM?usp=sharing 
 # 7-zip
